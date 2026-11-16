@@ -1,0 +1,2 @@
+# britannia-industry-Internship-operations-and-production-management
+MBA '1st' internship - Operations and Production Management (May–Jul 2023) at IBPL, a Britannia biscuit manufacturing unit in Villupuram. study the full process of departmental study from raw materials to dispatch: quality testing, safety, storage, purchase, HR, logistics, plus Britannia’s STP marketing mix and SWOT. Confidential data excluded.
